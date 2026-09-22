@@ -1,15 +1,16 @@
 ## "Your paranoia is annoying.." /lyr
 
 
-Yo yo heya! The names Adam :] Nice to meet ya
+Yo yo heya! The names Adam :] 
+ESTJ Social 1w2 136 VLFE - TH/EN 
 
 I don't have  enough energy to do this #ImOut
 
 - Fandoms: MCYT, Phighting, Bad Things, F1, The Magnus Archives, MARIKIN Online and more!
 - Current fixations: TMA, PROJECT_JAIDE, and Minecraft
-- As stated, I'm a Parrot fictionkin,, doubles I'd prefer not int much but it's ponytown who gaf rlly
+- As stated, I'm a fictionkin,, I usually make skins of my kins! doubles I'd prefer not int much but it's ponytown who gaf rlly
 - I make rentrys a lot. like a lot. i quite enjoy graphic making
-- i am suspecting to be physically disabled (I cannot get diagnosed but I do fit all criteria, have been for a while) so I might be a bit slow when typing or stuff
+- i am slow at typing and responding,, 
 - I'm very shy and nervous so I may not talk.. but uh I am pretty nice I guess. I also have very low energy,, Feel free to sit beside me or whatever, I don't mind it but high chance I might not respond unless you whisper
 - I usually sit with my best friend <3
 - also yeah I'm a system. Dats all. 🦘 🦜 ☯️ Live laugh love Chained Trio!
